@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @thaovan201532
 - 👀 I’m interested in Business Analytics
-- 🌱 I’m currently learning to expand my knowledge in the field.
+- 🌱 I’m currently seeking opportunity in Business Analytics field.
 - 📫 How to reach me : gmail: thaovan201532@gmail.com, LinkedIn: https://www.linkedin.com/in/thaovan-bui/
 - 😄 Pronouns: She/her/hers
 
